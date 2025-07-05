@@ -19,4 +19,4 @@
 
 总之，虽然网上日本AV免费资源种类繁多，获取方式也很方便，但理性选择正规平台、提升安全意识才是最重要的。只有这样，用户才能在满足观影需求的同时，避免陷入不良网站的陷阱，享受更安全、流畅的观影体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/xx45757/7056858 ）</span>
